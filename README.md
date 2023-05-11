@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OwenandKaleigh
-- 👀 I’m interested in Girls
+- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Everthing
 - 💞️ I’m looking to collaborate on No
 - 📫 How to reach me No
