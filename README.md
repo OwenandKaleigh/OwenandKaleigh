@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @OwenandKaleigh
+- 👋 Hi, I’m @Owen
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Everthing
 - 💞️ I’m looking to collaborate on No
